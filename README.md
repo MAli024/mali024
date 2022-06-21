@@ -11,8 +11,8 @@ Performance-driven, self-starter, dependable to the core customer service profes
 
 🤹Skills: REMOTE CUSTOMER SERVICE | CUSTOMER RELATIONS | CUSTOMER SUPPORT | COMPLAINT HANDLING.
 
-- 🔭 I’m currently working on Mental Health Practitioner | Medway Support Services at St. Anthony, MN | December 2019 – Present  
-- 🌱 I’m currently learning Saint Paul College, Saint Paul, Minnesota | Accounting | August 2017 
+- 💼 I’m currently working on Mental Health Practitioner | Medway Support Services at St. Anthony, MN | December 2019 – Present  
+- 🎓 My Education - Saint Paul College, Saint Paul, Minnesota | Accounting | August 2017 
 - 👯 I’m looking to collaborate on GitHub 
 - 💬 Ask me about Customer Service 
 - 📫 How to reach me:  mohameddotali1@gmail.com 
