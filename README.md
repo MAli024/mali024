@@ -1,7 +1,7 @@
-### Hi there 👋, MOHAMED ALI
-#### Customer Service Associate
+![](https://media-exp2.licdn.com/dms/image/C4E16AQHy0MA2E4KgJA/profile-displaybackgroundimage-shrink_350_1400/0/1655963883417?e=1661385600&v=beta&t=FMVkt41PEaazloQ5XVZBwmK0HhyifFcMe03GqoK--DQ)
 
-(Your GitHub Banner Link Here )
+### Hi there 👋, MOHAMED ALI
+#### Software Development Bootcamp
 
 Performance-driven, self-starter, dependable to the core customer service professional with demonstrated accomplishments, providing first-rate customer support to all clients, identifying and understanding clients’ needs and offering tailored solutions, and answering queries with patience. Proven track record in resolving and reducing customer complaints and meeting customer service level agreements. Possess expertise in operating financial transactions and adept at handling various calls daily while consistently resolving client issues in a short period. Valued for multitasking strengths, organizational abilities, and deft handling of confidential information. Strong technical aptitude combined with empathetic interpersonal and communication skills, able to handle stressful situations and communicate professionally with (occasional) “not so happy” customers. Consistent in building and maintaining client relationships by ensuring their needs and goals have been addressed reasonably and professionally. 
 
