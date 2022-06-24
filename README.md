@@ -5,7 +5,7 @@
 
 Performance-driven, self-starter, dependable to the core customer service professional with demonstrated accomplishments, providing first-rate customer support to all clients, identifying and understanding clients’ needs and offering tailored solutions, and answering queries with patience. Proven track record in resolving and reducing customer complaints and meeting customer service level agreements. Possess expertise in operating financial transactions and adept at handling various calls daily while consistently resolving client issues in a short period. Valued for multitasking strengths, organizational abilities, and deft handling of confidential information. Strong technical aptitude combined with empathetic interpersonal and communication skills, able to handle stressful situations and communicate professionally with (occasional) “not so happy” customers. Consistent in building and maintaining client relationships by ensuring their needs and goals have been addressed reasonably and professionally. 
 
-(Your Resume Link Here)
+[Resume](https://www.linkedin.com/resume-builder/urn:li:fs_memberResume:34852434/?edit=true)
 
 🥇AWARDS: Page scholar | North Star Stem Alliance | Federal National SMART Grants | etc.
 
@@ -16,6 +16,9 @@ Performance-driven, self-starter, dependable to the core customer service profes
 - 👯 I’m looking to collaborate on GitHub 
 - 💬 Ask me about Customer Service 
 - 📫 How to reach me:  mohameddotali1@gmail.com 
+
+
+[More About Me](https://www.linkedin.com/in/mohamedali024/)
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/MAli024)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/mohamedali/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/mohamedali)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/mohamedali/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/youtube.svg' alt='YouTube' height='40'>](https://www.youtube.com/channel/mohamedali)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/reddit.svg' alt='Reddit' height='40'>](https://www.reddit.com/user/mohamedali)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/icloud.svg' alt='website' height='40'>](mohamedali)  
